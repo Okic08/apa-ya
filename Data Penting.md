@@ -26,3 +26,8 @@ Teknik Memancing:
 4. Trolling 
 5. Surf Fishing 
 6. Fly Fishing.
+
+Cara Menangkap Ikan:
+1. Tangkap ikan dengan hati-hati
+2. Gunakan sarung tangan dan tang untuk menangkap dan menarik kail yang menyangkut pada rongga mulut ikan
+3. Tarik kail dengan perlahan menggunakan tang
